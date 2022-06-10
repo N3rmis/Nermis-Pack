@@ -13,5 +13,7 @@ You must be asking what does it have??
 
 Thats why you should download it NOW!!
 
+(Find Download In Releases to the right)
+
 
 ![nerm](https://user-images.githubusercontent.com/85434597/173142202-f3ad8d5a-b2f9-4409-b46e-db51828930b4.png)

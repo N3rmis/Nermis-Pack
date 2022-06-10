@@ -4,7 +4,7 @@ You must be asking what does it have??
 
 -Over 280 Hilarious Splashes!
 
--New Funny Mobs/Blocks/Items Sounds!
+-New Funny Mobs/Blocks/Items Sounds and Textures!
 
 -SAUL!!!!!!!!!
 
